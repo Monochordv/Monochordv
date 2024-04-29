@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Monochordv
+- 👀 We interested in android app
+- 🌱 I’m currently learning Kotlin
+- 📫 How to reach me discord shadowprincess5e
+- ⚡ Fun fact: we love Liquorice
